@@ -4,8 +4,9 @@
 
 - 3 large eggs
 - 1 tbsp butter
+- 1/4 cup shredded cheese (cheddar, gruyère, or your preference)
 - Salt and pepper to taste
-- Optional fillings: cheese, ham, mushrooms, peppers, onions, herbs
+- Optional fillings: ham, mushrooms, peppers, onions, herbs
 
 ## Steps
 
@@ -13,7 +14,7 @@
 2. Heat a non-stick pan over medium heat and melt the butter.
 3. Pour in the eggs and let them sit for about 30 seconds until the edges start to set.
 4. Gently push the cooked edges toward the center, tilting the pan to let uncooked egg flow to the edges.
-5. When the top is still slightly wet but mostly set, add your fillings to one half.
+5. When the top is still slightly wet but mostly set, sprinkle the cheese and any other fillings onto one half.
 6. Fold the other half over the fillings and slide onto a plate.
 7. Serve immediately.
 
